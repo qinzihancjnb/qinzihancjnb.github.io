@@ -1,0 +1,2 @@
+S1mple将为Falcons以租赁身份任职3个月并为上海major做准备
+- ![image](https://github.com/user-attachments/assets/19300302-59bc-406e-af64-035d06355152)![image](https://github.com/user-attachments/assets/28e39917-e26c-48a4-8924-9b028b620f0b)![image](https://github.com/user-attachments/assets/1a899f9f-b94e-47b9-b956-efdfd660ce40)
